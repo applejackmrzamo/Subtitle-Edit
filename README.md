@@ -216,3 +216,6 @@ Subtitle Edit is offered as a full free version, providing all features and upda
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 Download Subtitle Edit today and experience the most comprehensive and powerful subtitle editing software available. Don't miss out on all the features included in this complete package!
+
+---
+**Last updated:** 2026-09-13 20:33:46 UTC
