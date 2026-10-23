@@ -218,4 +218,4 @@ Subtitle Edit is offered as a full free version, providing all features and upda
 Download Subtitle Edit today and experience the most comprehensive and powerful subtitle editing software available. Don't miss out on all the features included in this complete package!
 
 ---
-**Last updated:** 2026-10-23 04:08:10 UTC
+**Last updated:** 2026-10-23 09:49:32 UTC
